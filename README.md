@@ -1,4 +1,4 @@
 <p align="center">
    work in progress :D
 <p align="center">
-  <img width="1043" height="1426" alt="image" src="https://github.com/user-attachments/assets/db0fcac8-d988-4e83-8fcc-1d3ba7b3df5a" />
+  <img width="600" height="750" alt="image" src="https://github.com/user-attachments/assets/3cf003e1-70b5-4c32-95cd-bfe414ac01c3" />
