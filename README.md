@@ -3,7 +3,7 @@
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
-   <img width="700" height="694" alt="Jukebox-Sticker-2 3366336633663365x2 3143966601688706in-Transparent" src="https://github.com/user-attachments/assets/56d20c19-b497-47dc-983e-6ad28216742e" />
+   <img src="https://github.com/user-attachments/assets/56d20c19-b497-47dc-983e-6ad28216742e" />
 
 <p align="center">
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
