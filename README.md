@@ -1,5 +1,9 @@
 <img alt="image" src="https://64.media.tumblr.com/6be82c3d2ae46b2c60ac0e69402420cf/dcae7002559eb8a9-e7/s2048x3072/9e57fd1e31c77a9da20e08e885b97ee90461937c.pnj" />
 <p align="center">
+   𝖨𝖭Τ | 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖦ᝪᝪ𝖣 ᝪ𝖬𝖤𝖭𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, & 𝖬ᝪ𝖱𝖤 
+<p align="center">
+   ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
+<p align="center">
    <a href="https://en.pronouns.page/u/timstalkerdrake"><kbd>ᑭᖇOᑎOᑌᑎᔕ</kbd></a>
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
