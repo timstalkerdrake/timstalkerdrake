@@ -25,7 +25,8 @@
    "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
 <p align="center">
    𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 ᝪ𝖥 𝖠𝖭𝖸 𝖪𝖨𝖭𝖣, 𝖠𝖭𝖸ᝪ𝖭𝖤 U𝖭𝖣𝖤𝖱 15, 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, 𝖤Τ𝖢 𝖤Τ𝖢... 𝖩U𝖲Τ 𝖣ᝪ𝖭Τ 𝖡𝖤 𝖠 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤𝖱𝖲ᝪ𝖭 ᝪ𝖱 𝖲U𝖯𝖯ᝪ𝖱Τ 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤ᝪ𝖯𝖫𝖤 𝖱𝖤𝖠𝖫𝖫𝖸 :)
-   
+ 
 <p align="center">
    <img alt="image" src="https://komarev.com/ghpvc/?username=timstalkerdrake&color=blueviolet&label=TIMBITS&style=for-the-badge" />
+   
 <img alt="image" src="https://64.media.tumblr.com/0e6e291007eb593821a6158cee3cf9b2/975577edafe15bc0-49/s2048x3072/d58e269071f443de75b53260ebd76a85183acd8b.pnj" />
