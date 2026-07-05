@@ -3,7 +3,7 @@
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
-   <img width="350" height="347" alt="image" src="https://github.com/user-attachments/assets/dcbeb9b6-6441-4524-9064-9427e98857d8" />
+   <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/dcbeb9b6-6441-4524-9064-9427e98857d8" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/866de7e9-81b5-4128-9041-1903e1366943" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/84c11beb-709d-4bcc-8ce7-22979a764714" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/c19ef9e7-68ae-444a-aa98-c9d961ea695a" />
