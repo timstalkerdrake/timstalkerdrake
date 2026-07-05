@@ -3,7 +3,7 @@
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
-   <img src="https://github.com/user-attachments/assets/56d20c19-b497-47dc-983e-6ad28216742e" />
+   <img width="700" height="693" alt="image" src="https://github.com/user-attachments/assets/de1fcd5b-ed35-478a-aaac-984ed0437045" />
 
 <p align="center">
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
