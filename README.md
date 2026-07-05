@@ -2,7 +2,9 @@
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
+<p align="center">
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
+   <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd>
 <p align="center">
    "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
 <img alt="image" src="https://64.media.tumblr.com/0e6e291007eb593821a6158cee3cf9b2/975577edafe15bc0-49/s2048x3072/d58e269071f443de75b53260ebd76a85183acd8b.pnj" />
