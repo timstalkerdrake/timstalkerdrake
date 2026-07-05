@@ -3,13 +3,13 @@
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
-   <img alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
+   <img width="350" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/dcbeb9b6-6441-4524-9064-9427e98857d8" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/866de7e9-81b5-4128-9041-1903e1366943" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/84c11beb-709d-4bcc-8ce7-22979a764714" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/c19ef9e7-68ae-444a-aa98-c9d961ea695a" />
    <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/8176e5d7-d048-4af8-bc38-e2cce1f0cd4b" />
-   <img alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
+   <img width="350" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
 <p align="center">
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
    <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd>
