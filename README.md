@@ -1,4 +1,3 @@
-<img width="400" height="140" alt="tumblr_6be82c3d2ae46b2c60ac0e69402420cf_3b148adf_400" src="https://github.com/user-attachments/assets/96c97c6c-e560-43af-a9be-a916b445781c" />
 <p align="center">
    ᗯOᖇK Iᑎ ᑭᖇOGᖇEᔕᔕ :ᗪ
 <p align="center"> 
