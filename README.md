@@ -4,6 +4,5 @@
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
 <p align="center">
-  <img width="380" height="500" alt="image" src="https://github.com/user-attachments/assets/cb93648a-c255-46ac-8ac3-ba3f053774f6" />
-<p align="center">
    "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
+<img alt="image" src="https://64.media.tumblr.com/0e6e291007eb593821a6158cee3cf9b2/975577edafe15bc0-49/s2048x3072/d58e269071f443de75b53260ebd76a85183acd8b.pnj" />
