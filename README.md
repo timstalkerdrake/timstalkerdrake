@@ -1,4 +1,4 @@
-<img alt="image" src="https://64.media.tumblr.com/fcf4ab63176da2e2358c635d07339eca/7bcbeb33594b1c2a-9f/s1280x1920/9b8e6678444c9ea64d3807e9599075147bad15e9.pnj" />
+<img alt="image" src="https://64.media.tumblr.com/6be82c3d2ae46b2c60ac0e69402420cf/dcae7002559eb8a9-e7/s2048x3072/9e57fd1e31c77a9da20e08e885b97ee90461937c.pnj" />
 <p align="center">
    ᗯOᖇK Iᑎ ᑭᖇOGᖇEᔕᔕ :ᗪ
 <p align="center"> 
