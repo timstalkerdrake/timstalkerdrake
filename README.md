@@ -24,7 +24,7 @@
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
    <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd></a>
 <p align="center">
-   <a href="https://timstalkerdrake.atabook.org/"><kbd>ᗩTᗩᗷOOK</kbd></a>
+   <a href="https://timslovemail.straw.page/"><kbd>ᒪOᐯEᗰᗩIᒪ</kbd></a>
 <p align="center">
    "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
 <p align="center">
