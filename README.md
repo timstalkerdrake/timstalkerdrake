@@ -10,8 +10,8 @@
 <p align="center">
    <a href="https://en.pronouns.page/u/timstalkerdrake"><kbd>ᑭᖇOᑎOᑌᑎᔕ</kbd></a>
 <p align="center"> 
-   <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
-   <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
+   <a href="https://rentry.co/worIdsfinest"><kbd>$${\color{#7d608f}ᗰᗩTᑕᕼIᑎG \space ᗯ/ᗩEᔕᘔᘔ}$$</kbd></a> 
+   <a href="https://rentry.co/thejusticeIeague"><kbd>$${\color{#7d608f}TᕼE \space ᑭOᑎY \space ᒍᑌᔕTIᑕE \space ᒪEᗩGᑌE}$$</kbd></a>
 <p align="center">
    <img width="150" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
    <img width="100" alt="image" src="https://github.com/user-attachments/assets/dcbeb9b6-6441-4524-9064-9427e98857d8" />
@@ -21,16 +21,16 @@
    <img width="100" alt="image" src="https://github.com/user-attachments/assets/8176e5d7-d048-4af8-bc38-e2cce1f0cd4b" />
    <img width="150" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
 <p align="center">
-   <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
-   <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd></a>
+   <a href="https://rentry.co/best-robin"><kbd>$${\color{#7d608f}ᖇEᑎTᖇY \space (TY ᗩEᔕᘔᘔ)}$$</kbd></a>
+   <a href="https://rentry.co/michaelslovemail"><kbd>$${\color{#7d608f}𑣲IᒪY \space ᗰIᑕᕼᗩ}$$</kbd></a>
 <p align="center">
-   <a href="https://timslovemail.straw.page/"><kbd>ᒪOᐯEᗰᗩIᒪ</kbd></a>
+   <a href="https://timslovemail.straw.page/"><kbd>$${\color{#7d608f}ᒪOᐯEᗰᗩIᒪ}$$</kbd></a>
 <p align="center">
-   "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
+   $${\color{#7d608f}"I'ᗰ \space ᑎOT \space ᗷᗩTᗰᗩᑎ. \space I \space ᕼᗩᐯE \space ᖴᖇIEᑎᗪᔕ." \space ~ \space TIᗰOTᕼY \space ᒍᗩᑕKᔕOᑎ \space ᗪᖇᗩKE}$$
 <p align="center">
-   𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 ᝪ𝖥 𝖠𝖭𝖸 𝖪𝖨𝖭𝖣, 𝖠𝖭𝖸ᝪ𝖭𝖤 U𝖭𝖣𝖤𝖱 15, 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, 𝖤Τ𝖢 𝖤Τ𝖢... 𝖩U𝖲Τ 𝖣ᝪ𝖭Τ 𝖡𝖤 𝖠 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤𝖱𝖲ᝪ𝖭 ᝪ𝖱 𝖲U𝖯𝖯ᝪ𝖱Τ 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤ᝪ𝖯𝖫𝖤 𝖱𝖤𝖠𝖫𝖫𝖸 :)
+   $${\color{#7d608f}𝖣𝖭𝖨 \space | \space 𝖡𝖠Τ𝖢𝖤𝖲Τ, \space 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, \space 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 \space ᝪ𝖥 \space 𝖠𝖭𝖸 \space 𝖪𝖨𝖭𝖣, \space 𝖠𝖭𝖸ᝪ𝖭𝖤 \space U𝖭𝖣𝖤𝖱 \space 15, \space 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 \space 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, \space 𝖤Τ𝖢 \space 𝖤Τ𝖢... \space 𝖩U𝖲Τ \space 𝖣ᝪ𝖭Τ \space 𝖡𝖤 \space 𝖠 \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤𝖱𝖲ᝪ𝖭 \space ᝪ𝖱 \space 𝖲U𝖯𝖯ᝪ𝖱Τ \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤ᝪ𝖯𝖫𝖤 \space 𝖱𝖤𝖠𝖫𝖫𝖸 \space :)}$$
 <p align="center">
    <img alt="image" src="https://komarev.com/ghpvc/?username=timstalkerdrake&color=blueviolet&label=TIMBITS&style=for-the-badge" />
 <p align="center">
-   •───────•°•❀•°•───────•
+   $${\color{#7d608f}•───────•°•❀•°•───────•}$$
 <img alt="image" src="https://64.media.tumblr.com/0e6e291007eb593821a6158cee3cf9b2/975577edafe15bc0-49/s2048x3072/d58e269071f443de75b53260ebd76a85183acd8b.pnj" />
