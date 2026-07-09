@@ -6,7 +6,7 @@
 <p align="center">
    $${\color{#7d608f}𝖨𝖭Τ \space 𝖥𝖤𝖫𝖫ᝪԜ \space 𝖰U𝖤𝖤𝖱𝖲, \space 𝖣𝖢, \space 𝖬𝖠𝖱𝖵𝖤𝖫, \space 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, \space 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, \space 𝖠𝖭𝖣 \space 𝖬ᝪ𝖱𝖤}$$
 <p align="center">
-   ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
+   $${\color{#7d608f}ᑕᑌᗪᗪᒪE \space + \space ᕼᑌG \space Iᔕ \space ᗩᒪᗯᗩYᔕ \space ᗩᒪᒪOᗯEᗪ}$$
 <p align="center">
    <a href="https://en.pronouns.page/u/timstalkerdrake"><kbd>ᑭᖇOᑎOᑌᑎᔕ</kbd></a>
 <p align="center"> 
