@@ -28,10 +28,12 @@
 <p align="center">
    $${\color{#7d608f}"I'ᗰ \space ᑎOT \space ᗷᗩTᗰᗩᑎ. \space I \space ᕼᗩᐯE \space ᖴᖇIEᑎᗪᔕ." \space ~ \space TIᗰOTᕼY \space ᒍᗩᑕKᔕOᑎ \space ᗪᖇᗩKE}$$
 <p align="center">
-   $${\color{#7d608f}𝖣𝖭𝖨 \space | \space 𝖡𝖠Τ𝖢𝖤𝖲Τ, \space 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, \space 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 \space ᝪ𝖥 \space 𝖠𝖭𝖸 \space 𝖪𝖨𝖭𝖣, \space 𝖠𝖭𝖸ᝪ𝖭𝖤 \space U𝖭𝖣𝖤𝖱 \space 15, \space 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 \space 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, \space 𝖤Τ𝖢 \space 𝖤Τ𝖢... \space 𝖩U𝖲Τ \space 𝖣ᝪ𝖭Τ \space 𝖡𝖤 \space 𝖠 \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤𝖱𝖲ᝪ𝖭 \space ᝪ𝖱 \space 𝖲U𝖯𝖯ᝪ𝖱Τ \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤ᝪ𝖯𝖫𝖤 \space 𝖱𝖤𝖠𝖫𝖫𝖸 \space :)}$$
+   $${\color{#7d608f}𝖣𝖭𝖨 \space | \space 𝖡𝖠Τ𝖢𝖤𝖲Τ, \space 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, \space 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 \space ᝪ𝖥 \space 𝖠𝖭𝖸 \space 𝖪𝖨𝖭𝖣, \space 𝖠𝖭𝖸ᝪ𝖭𝖤 \space U𝖭𝖣𝖤𝖱 \space 15, \space 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 \space 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, \space 𝖤Τ𝖢 \space 𝖤Τ𝖢...}$$
+<p align="center">
+   $${\color{#7d608f}𝖩U𝖲Τ \space 𝖣ᝪ𝖭Τ \space 𝖡𝖤 \space 𝖠 \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤𝖱𝖲ᝪ𝖭 \space ᝪ𝖱 \space 𝖲U𝖯𝖯ᝪ𝖱Τ \space 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 \space 𝖯𝖤ᝪ𝖯𝖫𝖤 \space 𝖱𝖤𝖠𝖫𝖫𝖸 \space :)}$$
 <p align="center">
    <img alt="image" src="https://komarev.com/ghpvc/?username=timstalkerdrake&color=blueviolet&label=TIMBITS&style=for-the-badge" />
 <p align="center">
-   $${\color{#7d608f}•───────•°•❀•°•───────•}}$$
+   $${\color{#7d608f}•───────•°•❀•°•───────•}$$
    
 <img alt="image" src="https://64.media.tumblr.com/0e6e291007eb593821a6158cee3cf9b2/975577edafe15bc0-49/s2048x3072/d58e269071f443de75b53260ebd76a85183acd8b.pnj" />
