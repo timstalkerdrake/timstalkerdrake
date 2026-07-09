@@ -10,8 +10,8 @@
 <p align="center">
    <a href="https://en.pronouns.page/u/timstalkerdrake"><kbd>ᑭᖇOᑎOᑌᑎᔕ</kbd></a>
 <p align="center"> 
-   <a href="https://rentry.co/worIdsfinest"><kbd>$${\color{#7d608f}ᗰᗩTᑕᕼIᑎG \space ᗯ/ᗩEᔕᘔᘔ}$$</kbd></a> 
-   <a href="https://rentry.co/thejusticeIeague"><kbd>$${\color{#7d608f}TᕼE \space ᑭOᑎY \space ᒍᑌᔕTIᑕE \space ᒪEᗩGᑌE}$$</kbd></a>
+   <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
+   <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
    <img width="150" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
    <img width="100" alt="image" src="https://github.com/user-attachments/assets/dcbeb9b6-6441-4524-9064-9427e98857d8" />
@@ -21,10 +21,10 @@
    <img width="100" alt="image" src="https://github.com/user-attachments/assets/8176e5d7-d048-4af8-bc38-e2cce1f0cd4b" />
    <img width="150" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
 <p align="center">
-   <a href="https://rentry.co/best-robin"><kbd>$${\color{#7d608f}ᖇEᑎTᖇY \space (TY ᗩEᔕᘔᘔ)}$$</kbd></a>
-   <a href="https://rentry.co/michaelslovemail"><kbd>$${\color{#7d608f}𑣲IᒪY \space ᗰIᑕᕼᗩ}$$</kbd></a>
+   <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
+   <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd></a>
 <p align="center">
-   <a href="https://timslovemail.straw.page/"><kbd>$${\color{#7d608f}ᒪOᐯEᗰᗩIᒪ}$$</kbd></a>
+   <a href="https://timslovemail.straw.page/"><kbd>ᒪOᐯEᗰᗩIᒪ</kbd></a>
 <p align="center">
    $${\color{#7d608f}"I'ᗰ \space ᑎOT \space ᗷᗩTᗰᗩᑎ. \space I \space ᕼᗩᐯE \space ᖴᖇIEᑎᗪᔕ." \space ~ \space TIᗰOTᕼY \space ᒍᗩᑕKᔕOᑎ \space ᗪᖇᗩKE}$$
 <p align="center">
