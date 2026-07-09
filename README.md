@@ -4,7 +4,7 @@
 <p align="center">
    <img height="50" alt="image" src="https://scontent-atl3-2.cdninstagram.com/v/t51.82787-15/733810434_18003737231956170_5852478523891567531_n.png?_nc_cat=105&ccb=7-5&_nc_sid=ecb677&_nc_ohc=p0jBbMke3lAQ7kNvwEBWOso&_nc_oc=AdpdqfOe525q3DC-NzBpJdG9Vngs_37TO6kLk063AOCr-K7tDdQWf43WUW_o_UQJskg&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-atl3-2.cdninstagram.com&_nc_gid=Eh4WNqTLQPexBI6jL1ncrw&_nc_ss=7a22e&oh=00_AQAapUbFb6udUjz0HWb_M-SwJTGo7hS9bUiA-ywbmYm59Q&oe=6A505BD5" />
 <p align="center">
-   $${\color{purple}INT FELLOW QUEERS, GOOD OMENS, DC, MARVEL, GENSHIN, STARDEW & MORE}$$
+   $${\color{blueviolet}INT FELLOW QUEERS, GOOD OMENS, DC, MARVEL, GENSHIN, STARDEW & MORE}$$
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
