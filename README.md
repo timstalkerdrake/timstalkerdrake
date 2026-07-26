@@ -8,7 +8,7 @@
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
-   <a href="https://en.pronouns.page/u/timstalkerdrake"><kbd>ᑭᖇOᑎOᑌᑎᔕ</kbd></a>
+   <a href="https://lovepageforfriends.straw.page/"><kbd>IᒪYT ᔕEᗷ𖹭</kbd></a>
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
