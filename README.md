@@ -11,7 +11,7 @@
    <a href="https://lovepageforfriends.straw.page/"><kbd>IᒪYT ᔕEᗷ𖹭</kbd></a>
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
-   <a href="https://timstalkerdrake.atabook.org"><kbd>ᗩTᗩᗷOOK</kbd></a> 
+   <a href="https://timstalkerdrake.atabook.org"><kbd>ᗩTᗩ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
    <img width="150" alt="image" src="https://64.media.tumblr.com/5cec62d0b3be702cfbf2b2db61cdac6d/975577edafe15bc0-69/s640x960/1efee50ab39cc593225dfe03065b424138619406.pnj" />
