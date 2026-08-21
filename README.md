@@ -7,13 +7,11 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
-<p align="center" style="color:#e7979e;">
-   
+<p align="center">
    ✧　　　˚<br>
    ✦　 CHECK OUT MY CARRD　 ✦<br>
 　  　　FOR MORE INFO<br>
 　 　˚　　　✧
-
 </p>
 <p align="center">
    <a href="https://rentry.co/worIdsfinest">
