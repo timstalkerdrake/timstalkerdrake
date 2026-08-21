@@ -6,7 +6,7 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/083bfb9b-cfb1-459f-be82-eb7b6b0265cf" />
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
-   <img height="50" alt="image" src="https://github.com/user-attachments/assets/96b5a841-b6bd-4a3c-b6f9-c15e382d1acc" />
+   <img height="50" alt="image" src="https://github.com/user-attachments/assets/52cb60d6-cd24-42ab-933b-bad32ece0139" />
 <p align="center">
    𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
 <p align="center">
