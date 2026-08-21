@@ -7,12 +7,10 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
-</p>
-<p align="center">
-  <a href="https://timstalkerdrake.carrd.co/">
-    <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=16&duration=4000&pause=1000&color=E7979E&center=true&vCenter=true&width=650&lines=✦+CHECK+OUT+MY+CARRD+FOR+MORE+INFO+✦" alt="Check out my Carrd for more info">
-  </a>
-</p>
+          ✧       ˚
+     ✦  CHECK OUT MY CARRD  ✦
+       FOR MORE INFO
+          ˚       ✧
 <p align="center">
    <a href="https://rentry.co/worIdsfinest">
   <img src="https://img.shields.io/badge/ᗰ/ᗯ ᗩEᔕᘔᘔ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
