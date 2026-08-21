@@ -6,8 +6,6 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/083bfb9b-cfb1-459f-be82-eb7b6b0265cf" />
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
-   <img height="50" alt="image" src="https://github.com/user-attachments/assets/52cb60d6-cd24-42ab-933b-bad32ece0139" />
-<p align="center">
    𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
@@ -24,12 +22,16 @@
    <a href="https://en.pronouns.page/u/timstalkerdrake#google_vignette">
   <img src="https://img.shields.io/badge/ᑭᖇOᑎOᑌᑎᔕ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
+   <img height="50" alt="image" src="https://github.com/user-attachments/assets/52cb60d6-cd24-42ab-933b-bad32ece0139" />
+<p align="center">
   <img width="600" alt="image" src="https://github.com/user-attachments/assets/67c33e59-8b71-4bec-a314-023d4b80070d" />
 <p align="center">
    <img width="700" alt="image" src="https://github.com/user-attachments/assets/e463f96d-4d14-4185-bfb7-b2ddef510e34" />
 <p align="center">
    <img width="600" alt="image" src="https://github.com/user-attachments/assets/67c33e59-8b71-4bec-a314-023d4b80070d" />
 </p>
+<p align="center">
+   <img height="50" alt="image" src="https://github.com/user-attachments/assets/52cb60d6-cd24-42ab-933b-bad32ece0139" />
 <p align="center">
    <a href="https://rentry.co/thejusticeIeague">
   <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
