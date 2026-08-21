@@ -6,7 +6,8 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/083bfb9b-cfb1-459f-be82-eb7b6b0265cf" />
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
-   𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
+  <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=18&duration=1800&pause=500&color=fffff&center=true&vCenter=true&width=500&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
+</p>
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
