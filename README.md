@@ -10,22 +10,23 @@
 <p align="center">
    𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
 <p align="center">
+   ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
+<p align="center">
    <a href="https://timstalkerdrake.carrd.co/and">
   <img src="https://img.shields.io/badge/CARRD-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
 </a>
 <p align="center">
-   ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
+   <a href="https://rentry.co/best-robin/and">
+  <img src="https://img.shields.io/badge/ᖇEᑎTᖇY-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
+</a>
 <p align="center">
    <a href="https://lovepageforfriends.straw.page/"><kbd>IᒪYT ᔕEᗷ𖹭</kbd></a>
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
-   <a href="https://timstalkerdrake.atabook.org"><kbd>ᗩTᗩ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
    <img <img width="700" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
 <p align="center">
-   <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
-   <a href="https://timstalkerdrake.carrd.co/"><kbd>ᑕᗩᖇᖇᗪ</kbd></a>
    <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd></a>
 <p align="center">
    <a href="https://timslovemail.straw.page/"><kbd>ᒪOᐯEᗰᗩIᒪ</kbd></a>
