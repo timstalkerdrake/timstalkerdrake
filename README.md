@@ -24,12 +24,11 @@
    <a href="https://en.pronouns.page/u/timstalkerdrake#google_vignette">
   <img src="https://img.shields.io/badge/ᑭᖇOᑎOᑌᑎᔕ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
-  <img width="2048" alt="image" src="https://github.com/user-attachments/assets/809c6b3b-314c-488b-bb2c-cfcf12cbb0ad" />
-</p>
+  <img width="2048" alt="image" src="https://github.com/user-attachments/assets/67c33e59-8b71-4bec-a314-023d4b80070d" />
 <p align="center">
    <img width="700" alt="image" src="https://github.com/user-attachments/assets/e463f96d-4d14-4185-bfb7-b2ddef510e34" />
 <p align="center">
-   <img width="2048" alt="image" src="https://github.com/user-attachments/assets/3810a21b-6136-401d-b570-eeecb25746f7" />
+   <img width="2048" alt="image" src="https://github.com/user-attachments/assets/67c33e59-8b71-4bec-a314-023d4b80070d" />
 </p>
 <p align="center">
    <a href="https://rentry.co/thejusticeIeague">
