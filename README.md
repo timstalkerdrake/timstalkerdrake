@@ -8,11 +8,11 @@
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
 <p align="center" style="color:#e7979e;">
-
-✧　　　˚<br>
-✦　 CHECK OUT MY CARRD　 ✦<br>
-　　　FOR MORE INFO<br>
-　　˚　　　✧
+   
+   ✧　　　˚<br>
+   ✦　 CHECK OUT MY CARRD　 ✦<br>
+　  　　FOR MORE INFO<br>
+　 　˚　　　✧
 
 </p>
 <p align="center">
