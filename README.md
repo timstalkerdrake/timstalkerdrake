@@ -9,8 +9,8 @@
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
 <p align="center">
    ✧　　　˚<br>
-   ✦　 CHECK OUT MY CARRD　 ✦<br>
-   FOR MORE INFO<br>
+   ✦　 𝖢𝖧𝖤𝖢𝖪 ᝪUΤ 𝖬𝖸 𝖢𝖠𝖱𝖱𝖣　 ✦<br>
+   𝖥ᝪ𝖱 𝖬ᝪ𝖱𝖤 𝖨𝖭𝖥ᝪ<br>
 　 　˚　　　✧
 </p>
 <p align="center">
