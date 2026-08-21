@@ -24,7 +24,7 @@
    <a href="https://en.pronouns.page/u/timstalkerdrake#google_vignette">
   <img src="https://img.shields.io/badge/ᑭᖇOᑎOᑌᑎᔕ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
-   <img <img width="700" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
+   <img width="700" alt="image" src="https://github.com/user-attachments/assets/e463f96d-4d14-4185-bfb7-b2ddef510e34" />
 <p align="center">
    <a href="https://rentry.co/thejusticeIeague">
   <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
