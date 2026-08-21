@@ -9,7 +9,7 @@
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
 <p align="center">
   <a href="https://timstalkerdrake.carrd.co/">
-    <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=16&duration=4000&pause=1000&color=E7979E&center=true&vCenter=true&width=700&lines=✧+˚+CHECK+OUT+MY+CARRD+˚+✧;FOR+MORE+INFO+✦" alt="Check out my Carrd for more info">
+    <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=16&duration=4000&pause=1000&color=E7979E&center=true&vCenter=true&width=700&lines=✧+CHECK+OUT+MY+CARRD+FOR+MORE+INFO+✦" alt="Check out my Carrd for more info">
   </a>
 </p>
 <p align="center">
