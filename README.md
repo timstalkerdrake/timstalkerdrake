@@ -21,16 +21,16 @@
    <a href="https://timstalkerdrake.atabook.org/">
   <img src="https://img.shields.io/badge/ᗩTᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
-   <a href="https://lovepageforfriends.straw.page/"><kbd>IᒪYT ᔕEᗷ𖹭</kbd></a>
-<p align="center"> 
-   <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
-   <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
-<p align="center">
    <img <img width="700" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
 <p align="center">
-   <a href="https://rentry.co/michaelslovemail"><kbd>𑣲IᒪY ᗰIᑕᕼᗩ</kbd></a>
-<p align="center">
-   <a href="https://timslovemail.straw.page/"><kbd>ᒪOᐯEᗰᗩIᒪ</kbd></a>
+   <a href="https://rentry.co/thejusticeIeague">
+  <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+   <a href="https://timslovemail.straw.page/">
+  <img src="https://img.shields.io/badge/ᒪOᐯEᗰᗩIᒪ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+    <a href="https://lovepageforfriends.straw.page/">
+  <img src="https://img.shields.io/badge/IᒪYT ᔕEᗷ𖹭-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+    <a href="https://rentry.co/michaelslovemail">
+  <img src="https://img.shields.io/badge/𑣲IᒪY ᗰIᑕᕼᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
    "I'ᗰ ᑎOT ᗷᗩTᗰᗩᑎ. I ᕼᗩᐯE ᖴᖇIEᑎᗪᔕ." ~ TIᗰOTᕼY ᒍᗩᑕKᔕOᑎ ᗪᖇᗩKE
 <p align="center">
