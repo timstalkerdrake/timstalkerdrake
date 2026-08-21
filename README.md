@@ -53,7 +53,21 @@
     <a href="https://rentry.co/michaelslovemail">
   <img src="https://img.shields.io/badge/𑣲IᒪY ᗰIᑕᕼᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
-   𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 ᝪ𝖥 𝖠𝖭𝖸 𝖪𝖨𝖭𝖣, 𝖠𝖭𝖸ᝪ𝖭𝖤 U𝖭𝖣𝖤𝖱 15, 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, 𝖤Τ𝖢 𝖤Τ𝖢... 𝖩U𝖲Τ 𝖣ᝪ𝖭Τ 𝖡𝖤 𝖠 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤𝖱𝖲ᝪ𝖭 ᝪ𝖱 𝖲U𝖯𝖯ᝪ𝖱Τ 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤ᝪ𝖯𝖫𝖤 𝖱𝖤𝖠𝖫𝖫𝖸 :)
+  ♡　　　˚　✧<br><br>
+
+  𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲,<br>
+  𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 ᝪ𝖥 𝖠𝖭𝖸 𝖪𝖨𝖭𝖣,<br>
+  𝖠𝖭𝖸ᝪ𝖭𝖤 U𝖭𝖣𝖤𝖱 15<br><br>
+
+  ✦　𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲,<br>
+  𝖤Τ𝖢 𝖤Τ𝖢...　♡<br><br>
+
+  𝖩U𝖲Τ 𝖣ᝪ𝖭Τ 𝖡𝖤 𝖠 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤𝖱𝖲ᝪ𝖭<br>
+  ᝪ𝖱 𝖲U𝖯𝖯ᝪ𝖱Τ 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤ᝪ𝖯𝖫𝖤<br>
+  𝖱𝖤𝖠𝖫𝖫𝖸 :)<br><br>
+
+  ˚　♡　✧　　　✦　　　♡　˚
+</p>
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=16&duration=4500&pause=1000&color=ffffff&center=true&vCenter=true&width=700&lines=%22A+lot+of+things+bother+me%2C+Commissioner.%22;%22But+that+doesn%27t+stop+me+from+doing+what+I+need+to+do.%22" alt="Typing quote">
 </p>
