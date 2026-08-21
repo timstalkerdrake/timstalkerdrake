@@ -13,7 +13,6 @@
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
    <a href="https://lovepageforfriends.straw.page/"><kbd>IᒪYT ᔕEᗷ𖹭</kbd></a>
-   [![GitHub stars](https://shields.io)](https://github.com)
 <p align="center"> 
    <a href="https://rentry.co/worIdsfinest"><kbd>ᗰᗩTᑕᕼIᑎG ᗯ/ᗩEᔕᘔᘔ</kbd></a> 
    <a href="https://timstalkerdrake.atabook.org"><kbd>ᗩTᗩ</kbd></a> 
