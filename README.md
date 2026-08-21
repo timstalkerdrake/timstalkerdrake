@@ -16,7 +16,6 @@
 　　　FOR MORE INFO<br>
 　　˚　　　✧
 
-    </span>
   </a>
 </p>
 <p align="center">
