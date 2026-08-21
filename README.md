@@ -20,11 +20,14 @@
   <img src="https://img.shields.io/badge/ᖇEᑎTᖇY-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
    <a href="https://timstalkerdrake.atabook.org/">
   <img src="https://img.shields.io/badge/ᗩTᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+<p align="center"> 
+   <a href="https://rentry.co/thejusticeIeague">
+  <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
    <img <img width="700" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
 <p align="center">
-   <a href="https://rentry.co/thejusticeIeague">
-  <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+   <a href="https://en.pronouns.page/u/timstalkerdrake">
+  <img src="https://img.shields.io/badge/ᑭᖇOᑎOᑌᑎᔕ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
    <a href="https://timslovemail.straw.page/">
   <img src="https://img.shields.io/badge/ᒪOᐯEᗰᗩIᒪ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
     <a href="https://lovepageforfriends.straw.page/">
