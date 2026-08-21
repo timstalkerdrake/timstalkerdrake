@@ -1,4 +1,4 @@
-<img alt="image" src="https://64.media.tumblr.com/6be82c3d2ae46b2c60ac0e69402420cf/dcae7002559eb8a9-e7/s2048x3072/9e57fd1e31c77a9da20e08e885b97ee90461937c.pnj" />
+<img alt="image" src="https://github.com/user-attachments/assets/7c185eb0-f1f5-4383-9a3e-d30b6954f6d2" />
 <p align="center">
    •───────•°•❀•°•───────•}
 <p align="center">
