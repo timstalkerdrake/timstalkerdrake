@@ -11,7 +11,7 @@
    𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
 <p align="center">
    <a href="https://timstalkerdrake.carrd.co/and">
-  <img src="https://img.shields.io/badge/20CARRD-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
+  <img src="https://img.shields.io/badge/CARRD-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
 </a>
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
