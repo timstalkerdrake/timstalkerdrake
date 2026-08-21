@@ -10,7 +10,7 @@
 <p align="center">
    ✧　　　˚<br>
    ✦　 CHECK OUT MY CARRD　 ✦<br>
-　  FOR MORE INFO<br>
+   FOR MORE INFO<br>
 　 　˚　　　✧
 </p>
 <p align="center">
