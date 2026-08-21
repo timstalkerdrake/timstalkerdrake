@@ -6,7 +6,7 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/083bfb9b-cfb1-459f-be82-eb7b6b0265cf" />
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=18&duration=1800&pause=500&color=fffff&center=true&vCenter=true&width=500&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
+  <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=18&duration=1800&pause=500&color=ffffff&center=true&vCenter=true&width=500&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
 </p>
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
