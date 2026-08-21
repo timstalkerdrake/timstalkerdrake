@@ -12,6 +12,8 @@
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
+   <a href="https://rentry.co/worIdsfinest">
+  <img src="https://img.shields.io/badge/ᗰ/ᗯ ᗩEᔕᘔᘔ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
    <a href="https://timstalkerdrake.carrd.co/">
   <img src="https://img.shields.io/badge/CARRD-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
    <a href="https://rentry.co/best-robin/">
