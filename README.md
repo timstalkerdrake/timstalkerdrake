@@ -14,7 +14,7 @@
    <a href="https://timstalkerdrake.atabook.org"><kbd>ᗩTᗩ</kbd></a> 
    <a href="https://rentry.co/thejusticeIeague"><kbd>TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE</kbd></a>
 <p align="center">
-   <img <img width="1414" height="2000" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
+   <img <img width="1414" alt="1787311784038_5gm2919wg7" src="https://github.com/user-attachments/assets/78fc25a9-379a-48d7-8372-4862baa28092" />
 <p align="center">
    <a href="https://rentry.co/best-robin"><kbd>ᖇEᑎTᖇY (TY ᗩEᔕᘔᘔ)</kbd></a>
    <a href="https://timstalkerdrake.carrd.co/"><kbd>ᑕᗩᖇᖇᗪ</kbd></a>
