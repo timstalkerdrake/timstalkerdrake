@@ -22,7 +22,7 @@
    <a href="https://en.pronouns.page/u/timstalkerdrake#google_vignette">
   <img src="https://img.shields.io/badge/ᑭᖇOᑎOᑌᑎᔕ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
-   <img height="50" alt="image" src="https://github.com/user-attachments/assets/aa64bdbd-996c-48e4-9eef-4cf5fcd01474" />
+   <img height="100" alt="image" src="https://github.com/user-attachments/assets/aa64bdbd-996c-48e4-9eef-4cf5fcd01474" />
 <p align="center">
   <img width="600" alt="image" src="https://github.com/user-attachments/assets/67c33e59-8b71-4bec-a314-023d4b80070d" />
 <p align="center">
