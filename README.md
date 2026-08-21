@@ -10,7 +10,7 @@
 <p align="center">
    𝖨𝖭Τ 𝖥𝖤𝖫𝖫ᝪԜ 𝖰U𝖤𝖤𝖱𝖲, 𝖣𝖢, 𝖬𝖠𝖱𝖵𝖤𝖫, 𝖦𝖤𝖭𝖲𝖧𝖨𝖭, 𝖲Τ𝖠𝖱𝖣𝖤Ԝ, 𝖠𝖭𝖣 𝖬ᝪ𝖱𝖤
 <p align="center">
-    <a href="https://timstalkerdrake.carrd.co/"><img src="https://shields.io" alt="ᑕᗩᖇᖇᗪ">
+    <a href="https://timstalkerdrake.carrd.co/"><img>src="https://shields.io" alt="ᑕᗩᖇᖇᗪ">
 <p align="center">
    ᑕᑌᗪᗪᒪE + ᕼᑌG Iᔕ ᗩᒪᗯᗩYᔕ ᗩᒪᒪOᗯEᗪ
 <p align="center">
