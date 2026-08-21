@@ -15,7 +15,6 @@
    <a href="https://timstalkerdrake.carrd.co/and">
   <img src="https://img.shields.io/badge/CARRD-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
 </a>
-<p align="center">
    <a href="https://rentry.co/best-robin/and">
   <img src="https://img.shields.io/badge/ᖇEᑎTᖇY-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd">
 </a>
