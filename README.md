@@ -31,7 +31,7 @@
    <img width="600" alt="image" src="https://github.com/user-attachments/assets/7e2b9a3a-484f-4adf-b189-1653b68087c3" />
 </p>
 <p align="center">
-   <img height="100" alt="image" src="https://github.com/user-attachments/assets/7ece3740-0788-4ce2-b2b1-ef77dd88b6ad" />
+   <img height="100" alt="image" src="https://github.com/user-attachments/assets/177aa749-4cad-48d1-97b7-aa369ab7bbfb" />
 <p align="center">
    <a href="https://rentry.co/thejusticeIeague">
   <img src="https://img.shields.io/badge/TᕼE ᑭOᑎY ᒍᑌᔕTIᑕE ᒪEᗩGᑌE-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
