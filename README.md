@@ -51,7 +51,7 @@
 <p align="center">
    𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲, 𝖰U𝖤𝖤𝖱𝖯𝖧ᝪ𝖡𝖤𝖲 ᝪ𝖥 𝖠𝖭𝖸 𝖪𝖨𝖭𝖣, 𝖠𝖭𝖸ᝪ𝖭𝖤 U𝖭𝖣𝖤𝖱 15, 𝖬𝖠𝖦𝖠/Τ𝖱U𝖬𝖯 𝖲U𝖯𝖯ᝪ𝖱Τ𝖤𝖱𝖲, 𝖤Τ𝖢 𝖤Τ𝖢... 𝖩U𝖲Τ 𝖣ᝪ𝖭Τ 𝖡𝖤 𝖠 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤𝖱𝖲ᝪ𝖭 ᝪ𝖱 𝖲U𝖯𝖯ᝪ𝖱Τ 𝖧ᝪ𝖱𝖱𝖨𝖡𝖫𝖤 𝖯𝖤ᝪ𝖯𝖫𝖤 𝖱𝖤𝖠𝖫𝖫𝖸 :)
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=16&duration=6500&pause=2000&color=E7979E&center=true&vCenter=true&width=800&lines=%22A+lot+of+things+bother+me%2C+Commissioner.+But+that+doesn%27t+stop+me+from+doing+what+I+need+to+do.%22">
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=18&duration=6500&pause=2000&color=E7979E&center=true&vCenter=true&width=850&lines=%22𝖠+𝖫𝖮𝖳+𝖮𝖥+𝖳𝖧𝖨𝖭𝖦𝖲+𝖡𝖮𝖳𝖧𝖤𝖱+𝖬𝖤%2C+𝖢𝖮𝖬𝖬𝖨𝖲𝖲𝖨𝖮𝖭𝖤𝖱.+𝖡𝖴𝖳+𝖳𝖧𝖠𝖳+𝖣𝖮𝖤𝖲𝖭%27𝖳+𝖲𝖳𝖮𝖯+𝖬𝖤+𝖥𝖱𝖮𝖬+𝖣𝖮𝖨𝖭𝖦+𝖶𝖧𝖠𝖳+𝖨+𝖭𝖤𝖤𝖣+𝖳𝖮+𝖣𝖮.%22">
 </p>
 <p align="center">
    <img alt="image" src="https://komarev.com/ghpvc/?username=timstalkerdrake&color=e7979e&label=TIMBITS&style=for-the-badge" />
