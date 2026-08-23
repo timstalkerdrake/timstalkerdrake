@@ -6,6 +6,8 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/083bfb9b-cfb1-459f-be82-eb7b6b0265cf" />
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
+   𝖯ᝪ𝖭𝖸ΤᝪԜ𝖭𝖲 𝖡𝖤𝖱𝖭𝖠𝖱𝖣 𝖣ᝪԜ𝖣 @paw-town
+<p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
 <p align="center">
    ✧　　　˚<br>
