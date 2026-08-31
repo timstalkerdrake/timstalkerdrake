@@ -54,7 +54,7 @@
   <img src="https://img.shields.io/badge/ᔕTᖇᗩᗯ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
    <a href="https://timslovemail.straw.page/">
   <img src="https://img.shields.io/badge/ᒪOᐯEᗰᗩIᒪ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
-    <a href="https://lovepageforfriends.straw.page/">
+    <a href="https://rentry.co/lovemail-fromJay">
   <img src="https://img.shields.io/badge/IᒪYT ᔕEᗷ𖹭-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
     <a href="https://rentry.co/michaelslovemail">
   <img src="https://img.shields.io/badge/𑣲IᒪY ᗰIᑕᕼᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
