@@ -8,9 +8,9 @@
 <p align="center">
   ✧　　　˚<br>
   ✦　 𝖯ᝪ𝖭𝖸ΤᝪԜ𝖭𝖲 𝖡𝖤𝖱𝖭𝖠𝖱𝖣 𝖣ᝪԜ𝖣　 ✦<br>
-  <a href="https://github.com/paw-town">@paw-town</a><br>
+  <a href="https://github.com/paw-town">@paw-town</a> ˚<br>
   ✦   #1 Τ𝖨𝖬𝖡𝖤𝖱𝖭 𝖲𝖧𝖨𝖯𝖯𝖤𝖱          ✦<br>
-  <a href="https://github.com/ship-town">@ship-town</a><br> 
+  ˚ <a href="https://github.com/ship-town">@ship-town</a><br> 
   　　˚　　　✧
 </p>
 <p align="center">
