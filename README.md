@@ -12,7 +12,7 @@
   <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a> ˚<br>
   ✦   #1 Τ𝖨𝖬𝖡𝖤𝖱𝖭 𝖲𝖧𝖨𝖯𝖯𝖤𝖱          ✦<br>
   ˚<a href="https://github.com/ship-town">@ship-town</a><br> 
-  　　˚　　　✧
+  　　⭒　　　✧
 </p>
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=17&duration=2500&pause=1000&color=ffffff&center=true&vCenter=true&width=600&lines=INTERACT;FELLOW+QUEERS;DC;MARVEL;GENSHIN;STARDEW;AND+MORE" alt="Interests">
