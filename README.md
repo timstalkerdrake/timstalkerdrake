@@ -61,6 +61,8 @@
   <img src="https://img.shields.io/badge/IᒪYT ᔕEᗷ𖹭-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
     <a href="https://rentry.co/michaelslovemail">
   <img src="https://img.shields.io/badge/𑣲IᒪY ᗰIᑕᕼᗩ-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
+    <a href="https://rentry.co/a2fywqcd">
+  <img src="https://img.shields.io/badge/ᗩᗰᗷEᖇ ♡-e7979e?style=for-the-badge&labelColor=e7979e&logoColor=white" alt="Carrd"></a>
 <p align="center">
    ♡　　　˚　✧<br><br>
    𝖣𝖭𝖨 | 𝖡𝖠Τ𝖢𝖤𝖲Τ, 𝖯𝖱ᝪ𝖲𝖧𝖨𝖯𝖯𝖤𝖱𝖲,<br>
