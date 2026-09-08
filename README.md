@@ -7,8 +7,9 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
   ✧　　　˚<br>
-  ✦　 𝖯ᝪ𝖭𝖸ΤᝪԜ𝖭𝖲 𝖡𝖤𝖱𝖭𝖠𝖱𝖣 𝖣ᝪԜ𝖣　 ✦<br>
-  <a href="https://github.com/paw-town">@paw-town</a> ˚<br>
+  ✦　 𝖯ᝪ𝖭𝖸ΤᝪԜ𝖭𝖲 𝖡𝖤𝖱𝖭𝖠𝖱𝖣 𝖣ᝪԜ𝖣 & Τ𝖨𝖬 𝖣𝖱𝖠𝖪𝖤　 ✦<br>
+  <a href="https://github.com/paw-town">@paw-town</a> ˚
+  <a href="https://github.com/Ponytowns-rewards">@Ponytowns-rewards</a><br>
   ✦   #1 Τ𝖨𝖬𝖡𝖤𝖱𝖭 𝖲𝖧𝖨𝖯𝖯𝖤𝖱          ✦<br>
   ˚<a href="https://github.com/ship-town">@ship-town</a><br> 
   　　˚　　　✧
