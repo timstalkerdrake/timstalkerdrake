@@ -7,7 +7,7 @@
    <img width="50" alt="image" src="https://github.com/user-attachments/assets/9c1af3a9-fb81-4e14-aac0-f65bb033e1dd" />
 <p align="center">
   ✧　　　˚<br>
-  ✦     𝖨𝖫𝖸 𝖦U𝖸𝖲 ♡    ✦<br>
+  ✦     𝖨 𝖫ᝪ𝖵𝖤 U 𝖦U𝖸𝖲 ♡    ✦<br>
   <a href="https://github.com/pt-friendships">@pt-friendships</a> ˚<br>
   ✦　 𝖯ᝪ𝖭𝖸ΤᝪԜ𝖭𝖲 𝖡𝖤𝖱𝖭𝖠𝖱𝖣 𝖣ᝪԜ𝖣 & Τ𝖨𝖬 𝖣𝖱𝖠𝖪𝖤　 ✦<br>
   <a href="https://github.com/paw-town">@paw-town</a> ⭒
